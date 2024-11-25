@@ -1,2 +1,0 @@
-# Anusha-reddy
-ANU
